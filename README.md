@@ -1,0 +1,1 @@
+# fufinkaa.github.io
